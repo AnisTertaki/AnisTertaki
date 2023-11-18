@@ -29,7 +29,7 @@
 
 - 📫 Pour me joindre:
    - Téléphone : +33 751384746
-   - email : tertakianis@gmail.com
+   - email : tertakiaksil@gmail.com
    - linkedin : [profile](https://www.linkedin.com/in/anis-tertaki/)
   
 
